@@ -1,4 +1,4 @@
-# acus220_primavera_2025
+# ACUS 220 Primavera de 2025
 
 - Una mirada desde una perspectiva Ecoacústica
 
