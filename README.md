@@ -4,4 +4,5 @@
 
 ## Dónde habita y por qué son importantes los anfibios?
 
-- Podemos distinguir usando nuestra audición qué clase de vocalizaciones producen los anfibios?
+- ¿Podemos distinguir usando nuestra audición clases de anfibios?
+- ¿Por qué los podemeos diferenciar auditivamente?
