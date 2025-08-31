@@ -1,6 +1,6 @@
 # ACUS 220 Primavera de 2025
 
-- Aprendamos conceptos sobre acústica desde una mirada Ecoacústica
+- Aprendamos conceptos sobre acústica desde una mirada de la biodiversidad.
 
 ## Sobre los sonidos o vocalizaciones de los anfibios?
 
