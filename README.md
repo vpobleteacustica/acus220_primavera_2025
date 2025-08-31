@@ -2,7 +2,7 @@
 
 - Una mirada desde una perspectiva Ecoacústica
 
-## Dónde habita y por qué son importantes los anfibios?
+## Dónde habitan y por qué son importantes los anfibios?
 
 - ¿Podemos distinguir usando nuestra audición clases de anfibios?
 - ¿Por qué los podemeos diferenciar auditivamente?
